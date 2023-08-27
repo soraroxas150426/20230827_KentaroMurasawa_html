@@ -1,1 +1,0 @@
-# 20230827_KentaroMurasawa_html
